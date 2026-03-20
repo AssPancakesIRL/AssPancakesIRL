@@ -1,9 +1,9 @@
-## idk call me (ass) Pancakes / snipes
+## idk call me (ass) Pancakes / mick / snipes
 
 <p align="center">
-$\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
+$\Large\color{#4169e1}{\textsf{Freak Fortress Lover}}$
 <p align="center">
-<img src="https://64.media.tumblr.com/4b006b7733791619245dca54a7d208a2/361deb5718ce34a8-a2/s1280x1920/853cc530b80076ecd9428fc0f285db228fd32e91.gifv" width="200" height="400" >
+<img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="400" >
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
@@ -11,7 +11,6 @@ $\Large\color{#800000}{\textsf{speedingbullet enthusiast}}$
 <p align="center">
 <img width="732" height="42" alt="image" src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gifv" />
 
-i will work on dis later hudgfdggd
 </div>
 
 </details>
@@ -43,7 +42,7 @@ i will work on dis later hudgfdggd
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » -14, i dont wanna int with children thanks.
 
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » sniperspy or spyscout fans. I hate you guys so much ewww
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » any ships of my fandom iwec
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » anti recovery shedtwt,, n other shedtwt users dni
 
