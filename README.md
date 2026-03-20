@@ -23,17 +23,17 @@ $\Large\color{#4169e1}{\textsf{Freak Fortress Lover}}$
   
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like ta make friends alot, dont be afraid ta approuch meh (aslong as i dont have any dni in my name) i'd also prefer if ya whispered me becuz m usually offtab 
   
-  <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » my typin' quirk is a on and off typa thin' like ummmm it comes n goes i caun' really control it reallly. whenever u talk ta me dont EXPECT me ta hav it ok? ok.
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/15fa585e5d46f43f2059d0db13dfe876/c8eb0991c1f80ef1-80/s75x75_c1/7fd5badc65bb23a3089230afe23d356e03d4d9cd.gifv"></a>ㅤ » my typin' quirk is a on and off typa thin' like ummmm it comes n goes i caun' really control it reallly. whenever u talk ta me dont EXPECT me ta hav it ok? ok.
  
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » I like alot of music artists like kmfdm, bloodhound gang, SOFTPLAY, Tom jones, devi mccallion, broadway homestuck, s3rl, Weezer, Self, ayesha erotica, tyler the creator, weird al, will wood, men at work, And one, ICP n glass animals (probably bout 10000 more dat i  didnt name-)
 
-   <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i speak welsh n english, not so much russian but i can understand it, i also have a good translator that i usually use ta communicate back ^^!
+   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/15fa585e5d46f43f2059d0db13dfe876/c8eb0991c1f80ef1-80/s75x75_c1/7fd5badc65bb23a3089230afe23d356e03d4d9cd.gifv"></a>ㅤ » i speak welsh n english, not so much russian but i can understand it, i also have a good translator that i usually use ta communicate back ^^!
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » yu can find me in da english safe server or da russian safe server, i switch thru both frequently n m also at tf2 area or da eddsworld area 
  
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » funfact, even tho my entire theme is ass pancakes. Im a heavy sniper kin :) (i am a ass pancakes fiction kin tho )
 
-   <a href="" target="_blank"><img width="25" src="https://github.com/user-attachments/assets/4e341f8f-693b-4813-a534-bcd79de688fc"></a>ㅤ » i am trying to recover from being problematic in the past. if you still dont want to interact with me its okay but i am trying to heal for the better, im sorry to everyone that ive made uncomfortable and upset with how i acted. i promise i will become a better person!
+   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/15fa585e5d46f43f2059d0db13dfe876/c8eb0991c1f80ef1-80/s75x75_c1/7fd5badc65bb23a3089230afe23d356e03d4d9cd.gifv"></a>ㅤ » i am trying to recover from being problematic in the past. if you still dont want to interact with me its okay but i am trying to heal for the better, im sorry to everyone that ive made uncomfortable and upset with how i acted. i promise i will become a better person!
   </details>
 
 <details align="center">
