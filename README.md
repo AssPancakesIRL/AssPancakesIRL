@@ -21,7 +21,7 @@
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » when first talking to me i probably will come off as dry if im not interested, otherwise im a relly nice person :)
   
   
-  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » i do enjoy making friends, not all the time tho, im always up for a chat tho just whisper me cause im usually offtab!
+  <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/447ea35b0c200ea6f97e661f15dfb9a7/7b10ea5127190c34-ec/s75x75_c1/f5f5b34886c3635e568d9892c37838d154fce6e7.pnj"></a>ㅤ » i do enjoy making friends, not all the time tho, im always up to have a chat just whisper me cause im usually offtab!
   
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/15fa585e5d46f43f2059d0db13dfe876/c8eb0991c1f80ef1-80/s75x75_c1/7fd5badc65bb23a3089230afe23d356e03d4d9cd.gifv"></a>ㅤ » i have a typing quirk that  i only really use without realising and when im stressed
  
