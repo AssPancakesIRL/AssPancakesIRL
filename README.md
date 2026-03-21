@@ -3,7 +3,7 @@
 
 
 <p align="center">
- <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/69c1b05c-c19e-44cc-bcac-2baeaa0894a8/dfody0p-b1918ca5-8715-482c-8d56-507ea19ec533.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82OWMxYjA1Yy1jMTllLTQ0Y2MtYmNhYy0yYmFlYWEwODk0YTgvZGZvZHkwcC1iMTkxOGNhNS04NzE1LTQ4MmMtOGQ1Ni01MDdlYTE5ZWM1MzMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VMgnMhjKtUEdgESDX5SHGJk0Nh0tCALsSTQZ0dBfwzU" width="150" height="150" > ${\textsf{\color{#4169e1}Feel free to call me Mick, Armeni or Pancakes}}$ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b6d5910f-e283-4212-a420-be52fc884dbb/dfgfbqw-cc86807a-aa1a-4e9d-996a-4202c48e540e.png/v1/fill/w_1280,h_1957/tf2_freak__ass_pancakes_by_thunderscuntkrazy_dfgfbqw-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTk1NyIsInBhdGgiOiIvZi9iNmQ1OTEwZi1lMjgzLTQyMTItYTQyMC1iZTUyZmM4ODRkYmIvZGZnZmJxdy1jYzg2ODA3YS1hYTFhLTRlOWQtOTk2YS00MjAyYzQ4ZTU0MGUucG5nIiwid2lkdGgiOiI8PTEyODAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.0HV_SKL6Bk7DbaixBZFBx6RV4wP36gejf0Wru1MaV88" width="150" height="150" >
+ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/69c1b05c-c19e-44cc-bcac-2baeaa0894a8/dfody0p-b1918ca5-8715-482c-8d56-507ea19ec533.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82OWMxYjA1Yy1jMTllLTQ0Y2MtYmNhYy0yYmFlYWEwODk0YTgvZGZvZHkwcC1iMTkxOGNhNS04NzE1LTQ4MmMtOGQ1Ni01MDdlYTE5ZWM1MzMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VMgnMhjKtUEdgESDX5SHGJk0Nh0tCALsSTQZ0dBfwzU" width="150" height="150" > ${\textsf{\color{#4169e1}ᨳິ    ׂ     𓈒  Mick, Armeni or pancakes  ྀ ͚}}$ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b6d5910f-e283-4212-a420-be52fc884dbb/dfgfbqw-cc86807a-aa1a-4e9d-996a-4202c48e540e.png/v1/fill/w_1280,h_1957/tf2_freak__ass_pancakes_by_thunderscuntkrazy_dfgfbqw-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTk1NyIsInBhdGgiOiIvZi9iNmQ1OTEwZi1lMjgzLTQyMTItYTQyMC1iZTUyZmM4ODRkYmIvZGZnZmJxdy1jYzg2ODA3YS1hYTFhLTRlOWQtOTk2YS00MjAyYzQ4ZTU0MGUucG5nIiwid2lkdGgiOiI8PTEyODAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.0HV_SKL6Bk7DbaixBZFBx6RV4wP36gejf0Wru1MaV88" width="150" height="150" >
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
@@ -17,7 +17,7 @@
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#4169e1}info bout me}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ BYI ˶ ༉ ﹕}}$ !! </summary
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » if ya first talk to me/int wit me first, i can be dry n blunt. i dont mean it in any way it just takes a bit for me ta warm up ta new peoples.
   
   
@@ -38,7 +38,7 @@
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#4169e1}Ma dni / thin ice}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ DNI/THIN ICE. ˶ ༉ ﹕}}$ !! </summary
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » -14, i dont wanna int with children thanks.
 
@@ -64,7 +64,7 @@
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#4169e1}Random shit}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#4169e1}﹕ 𝄞 ˶ Blinkies/Stamps ˶ ༉ ﹕}}$ !! </summary
 
  <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/dee5bc49b0d93be85966fca1a7697963/1881390cbd6f2163-20/s500x750/abdb7ad9156fdcddd84956705406d64da4e1627f.gifv"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/42d571589c0ca748cda2e2bab175b93a/ff1d8ea056012e5c-96/s100x200/be48d77ea6e2430c75cbd9e92dc40ce6a970c929.gifv"></a>
