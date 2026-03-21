@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  ${\textsf{\color{#4169e1}Fell free to call me Mick or Pancakes}}$
+  ${\textsf{\color{#4169e1}Feel free to call me Mick, Armeni or Pancakes}}$
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
