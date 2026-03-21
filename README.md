@@ -3,15 +3,14 @@
 
 
 <p align="center">
-  ${\textsf{\color{#4169e1}Feel free to call me Mick, Armeni or Pancakes}}$
+  ${\textsf{\color{#4169e1}Feel free to call me Mick, Armeni or Pancakes}}$ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b6d5910f-e283-4212-a420-be52fc884dbb/dfgfbqw-cc86807a-aa1a-4e9d-996a-4202c48e540e.png/v1/fill/w_1280,h_1957/tf2_freak__ass_pancakes_by_thunderscuntkrazy_dfgfbqw-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9MTk1NyIsInBhdGgiOiIvZi9iNmQ1OTEwZi1lMjgzLTQyMTItYTQyMC1iZTUyZmM4ODRkYmIvZGZnZmJxdy1jYzg2ODA3YS1hYTFhLTRlOWQtOTk2YS00MjAyYzQ4ZTU0MGUucG5nIiwid2lkdGgiOiI8PTEyODAifV1dLCJhdWQiOlsidXJuOnNlcnZpY2U6aW1hZ2Uub3BlcmF0aW9ucyJdfQ.0HV_SKL6Bk7DbaixBZFBx6RV4wP36gejf0Wru1MaV88" width="150" height="150" >
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
 
 <p align="center">
 <img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="400" >
-
-
+  
 </div>
 
 </details>
