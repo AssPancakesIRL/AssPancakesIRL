@@ -1,15 +1,16 @@
-## idk call me (ass) Pancakes / mick / snipes
+<p align="center">
+<img width="732" height="42" alt="image" src="https://64.media.tumblr.com/b95e7143550c5ce6644a4563e7b652c5/eb5e40a4245fc7b4-23/s640x960/49d893d2d9d0d3ac0dc45b885da66c0112eaaa09.gifv" />
+
 
 <p align="center">
-$\Large\color{#4169e1}{\textsf{Freak Fortress Lover}}$
-<p align="center">
-<img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="400" >
+  ${\textsf{\color{#4169e1}Fell free to call me Mick or Pancakes}}$
 
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=ProfessionalsHaveStandardss">
 
 <p align="center">
-<img width="732" height="42" alt="image" src="https://64.media.tumblr.com/a46ff4ea8ac260472a1c2b7084b612ec/004776c214472311-c0/s1280x1920/7e0fe26f43d2507b79b60df649ae1139a3708af6.gifv" />
+<img src="https://media1.tenor.com/m/DlvP-uE_b1gAAAAd/ass-pancakes-tf2-freaks.gif" width="200" height="400" >
+
 
 </div>
 
@@ -17,7 +18,7 @@ $\Large\color{#4169e1}{\textsf{Freak Fortress Lover}}$
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#e0e0e0}info bout me}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#4169e1}info bout me}}$ !! </summary
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/d6a459929ce0c257fdf7f0cdcd3bebd0/7b10ea5127190c34-cf/s75x75_c1/dca2e47836777a13835e1f90d0615888d8546654.gifv"></a>ㅤ » if ya first talk to me/int wit me first, i can be dry n blunt. i dont mean it in any way it just takes a bit for me ta warm up ta new peoples.
   
   
@@ -38,7 +39,7 @@ $\Large\color{#4169e1}{\textsf{Freak Fortress Lover}}$
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#e0e0e0}Ma dni / thin ice}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#4169e1}Ma dni / thin ice}}$ !! </summary
 
   <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/c089452f0641e57bec81f48585493186/16d1249130307d36-10/s1280x1920/867d7c2320ae29550eeb68e6a133e02d33e0b9b1.pnj"></a>ㅤ » -14, i dont wanna int with children thanks.
 
@@ -64,7 +65,7 @@ $\Large\color{#4169e1}{\textsf{Freak Fortress Lover}}$
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#e0e0e0}Random shit}}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#4169e1}Random shit}}$ !! </summary
 
  <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/dee5bc49b0d93be85966fca1a7697963/1881390cbd6f2163-20/s500x750/abdb7ad9156fdcddd84956705406d64da4e1627f.gifv"></a>
 <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/42d571589c0ca748cda2e2bab175b93a/ff1d8ea056012e5c-96/s100x200/be48d77ea6e2430c75cbd9e92dc40ce6a970c929.gifv"></a>
